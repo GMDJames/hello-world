@@ -1,2 +1,3 @@
 # hello-world
-help its holding me at knifepoint until i complete the tutorial
+im not a furry lol
+also im not a faggot
